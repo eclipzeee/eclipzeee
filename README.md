@@ -1,4 +1,4 @@
-- 👋 Dobry wieczor, Jestem @eclipzeee (Przemek)
+- 👋 Dobry wieczór, Jestem @eclipzeee (Przemek)
 - 👀 Interesuje sie programowaniem, literaturą piękną, literaturą obyczajową, oraz J. Angielskim!
 - 🌱 Aktualnie wciąż uczę się Javy.
 - 📫 Zapraszam do jakiegokolwiek kontaktu na Discordzie; @.ecl1pzeee 
