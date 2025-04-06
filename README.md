@@ -1,5 +1,5 @@
-- 👋 Dobry wieczór, Jestem @c4inn (Przemek, Jacob)
-- 👀 Interesuje sie programowaniem, literaturą piękną, literaturą obyczajową, oraz literaturą typu YA.
+- 👋 Dobry wieczór, Jestem @.prz3moo (Przemek, Scott)
+- 👀 Interesuje sie programowaniem, literaturą piękną, literaturą obyczajową, oraz literaturą typu YA. Dodatkowo, interesuję się prawem w USA.
 - 🌱 Aktualnie wciąż uczę się Javy, oraz piszę własną książkę.
-- 📫 Zapraszam do jakiegokolwiek kontaktu na Discordzie; @.c4inn 
-- ⚡ Fun fact; kiedyś dodam
+- 📫 Zapraszam do jakiegokolwiek kontaktu na Discordzie; @.prz3moo
+- ⚡ Fun fact; zamierzam aplikować na Harvard.
